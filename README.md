@@ -6,6 +6,4 @@
 
 1- _Strogonoff de frango_  
 
-
-
-
+2- Pavê
